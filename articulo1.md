@@ -1,5 +1,7 @@
 ## Artículo. Por el derecho a Informar
 
+#### _Escrito por: Sergio Rivera S._
+
 Como ciudadanos tenemos derechos, pero también tenemos el deber de respetar a los demás. Si bien estamos en libertad de expresar nuestros puntos de vista, este derecho no puede tomarse como excusa para señalar injustamente.
 
 En algunas ocasiones, a los periodistas nos toca abordar temas con los que no nos sentimos cómodos. Hay líneas editoriales que seguir que a veces van en contra de nuestra voluntad y traen sus consecuencias.
