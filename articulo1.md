@@ -4,7 +4,7 @@ Como ciudadanos tenemos derechos, pero también tenemos el deber de respetar a l
 
 En algunas ocasiones, a los periodistas nos toca abordar temas con los que no nos sentimos cómodos. Hay líneas editoriales que seguir que a veces van en contra de nuestra voluntad y traen sus consecuencias.
 
-![Fotografia del articulo](https://radiopanama.com.pa/wp-content/uploads/2018/09/3794235.jpg)
+<center>![Fotografia del articulo](https://radiopanama.com.pa/wp-content/uploads/2018/09/3794235.jpg)<center>
 
 Las últimas semanas han sido un poco difíciles para quienes trabajamos en los medios de comunicación, con grupos editoriales con procesos ante la justicia, periodistas y presentadores atacados como consecuencia de su trabajo. En casi todos los casos, los señalamientos vienen de la misma vía.
 
