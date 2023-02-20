@@ -1,3 +1,3 @@
-## Por el derecho a Informar
+### Por el derecho a Informar
 
-publicado en Radio Panama
+Publicado en Radio Panama
