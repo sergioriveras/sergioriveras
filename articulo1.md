@@ -1,4 +1,4 @@
-## Articulo. Por el derecho a Informar
+## Artículo. Por el derecho a Informar
 
 Como ciudadanos tenemos derechos, pero también tenemos el deber de respetar a los demás. Si bien estamos en libertad de expresar nuestros puntos de vista, este derecho no puede tomarse como excusa para señalar injustamente.
 
