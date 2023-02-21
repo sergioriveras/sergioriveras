@@ -9,6 +9,8 @@ En política se ve de todo. Los amigos no existen, pero la unidad para promover 
 
 En medio del proceso interno para la elección de candidatos en partidos políticos salen algunos de los resultados de un reforma electoral que invita a la impunidad y al descaro.
 
+![Fotografia del articulo](https://radiopanama.com.pa/wp-content/uploads/2018/10/3809049.jpg)
+
 Como periodista me he tomado el tiempo para revisar cada listado de precandidatos a cargos de elección. Algunos nombres son desconocidos (con la excusa de no a la reelección), pero otros ya han estado cerca de los órganos de Gobierno…hasta han desfilado por los tribunales de justicia y "coincidentalmente" ahora aparecen como aspirantes a algo. Con fuero en mano, se salvan de procesos, por ahora.
 
 En mente tengo varios. Muchos de los postulados nunca fueron candidatos a nada pero su peculiar interés por ocupar una silla en la Asamblea Nacional, Alcaldías o Juntas Comunales, ahora resulta sospechoso.
