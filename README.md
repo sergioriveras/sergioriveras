@@ -4,4 +4,5 @@ Mi nombre es Sergio Rivera Santana. Soy Licenciado en Periodismo, egresado de la
 
 En este espacio comparto mis escritos y proyectos periodísticos y de opinión. Puedes dar clic en el enlace de tu interés para comenzar a leer, ver y/o escuchar.
 
-[Articulo. Por el derecho a Informar](articulo1.md), publicado en septiembre de 2018 por _www.radiopanama.com.pa_
++ [Articulo. Por el derecho a Informar](articulo1.md), publicado en septiembre de 2018 por _www.radiopanama.com.pa_
++ [Articulo. Aspirando a lograr beneficios](articulo2.md), publicado en septiembre de 2018 por _www.radiopanama.com.pa_
