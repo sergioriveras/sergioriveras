@@ -10,6 +10,8 @@ Para mi el café es simplemente eso, pero aprendí que hay muchos factores que d
 
 Mi primera experiencia en una cata de café fue con una cosecha procedente de África. Hasta ese momento no había escuchado nunca de un café cultivado en el continente negro y que se comercializara en Panamá, pero me gustó, porque me hicieron acompañarlo con un bizcocho de limón. Vaya diferencia, después del sabor más amargo que había sentido mi paladar...todavía tengo esa sensación en mi garganta. 
 
+La joven que nos atendió, cuyo nombre no recuerdo, explicaba que el producto era un café de cuerpo medio y que su sabor cambia radicalmente cuando se combina con hielo. Tiene sabores que se asemejan a los cítricos como la naranja y el limón. Dicen que es de los mejores y que se cultiva en los alrededores del Monte Kenya, uno de los picos más altos de África.
+
 Para gustos los colores. Cada quien tiene preferencias con respecto a determinados productos y en cuanto a mi, el café es una bebida que seguiré disfrutando en cualquier formato donde se combine con otros sabores que la hagan más agradable a mi paladar. 
 
 La próxima vez, mi café que sea con leche y dos de azúcar.
