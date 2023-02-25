@@ -1,4 +1,4 @@
-## Artículo. Destino no alcanzado
+## Artículo. Destino nunca alcanzado
 
 #### Escrito por: Sergio Rivera S.
 
