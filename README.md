@@ -6,3 +6,4 @@ En este espacio comparto mis escritos, proyectos periodísticos y de opinión. P
 
 + [Articulo. Por el derecho a Informar](articulo1.md), publicado en septiembre de 2018 por _www.radiopanama.com.pa_
 + [Articulo. Aspirando a lograr beneficios](articulo2.md), publicado en septiembre de 2018 por _www.radiopanama.com.pa_
++ [Articulo. Destino nunca alcanzado], publicado el 16 de febrero de 2023 en blog personal.
