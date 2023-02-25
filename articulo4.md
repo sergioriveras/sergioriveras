@@ -1,4 +1,4 @@
-## Artículo. La Cata de Cafè
+## Artículo. La cata de un café africano
 
 #### Escrito por: Sergio Rivera S.
 
